@@ -1,1 +1,0 @@
-# keremakkn.github.io
